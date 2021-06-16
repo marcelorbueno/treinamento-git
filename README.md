@@ -1,1 +1,0 @@
-# Repositório de treinamento do TRE-RJ
